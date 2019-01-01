@@ -1,0 +1,1 @@
+lagi belajar di hari ke 2
